@@ -18,4 +18,14 @@ A large steel door-frame fitted with special X-Ray scanner connected with comput
 
 - Whistler's Mother ![](http://upload.wikimedia.org/wikipedia/commons/thumb/1/1b/Whistlers_Mother_high_res.jpg/863px-Whistlers_Mother_high_res.jpg)
 
-4.
+4. It is the practice of looking through the contents of your refrigerator to see what raw ingredients you can easily lay your hands on, and using those words as a basis for a Google search term (which usually also incorporates the word 'recipe' somewhere) in order to get a list of suggestions of what to cook. Though it has only been in use for the last couple of years or so, this expression is thought to have been coined in 2002 by Bostonian blogger Judy Hourihan, a former Massachusetts software engineer.
+
+- Fridge Googling
+
+5. It is the practice of looking through the contents of your refrigerator to see what raw ingredients you can easily lay your hands on, and using those words as a basis for a Google search term (which usually also incorporates the word 'recipe' somewhere) in order to get a list of suggestions of what to cook. Though it has only been in use for the last couple of years or so, this expression is thought to have been coined in 2002 by Bostonian blogger Judy Hourihan, a former Massachusetts software engineer.
+
+- The Monalisa !
+
+6. The rhyme has often been associated with the Great Plague which happened in England in 1665, or with earlier outbreaks of the Black Death in England. Interpreters of the rhyme before the Second World War make no mention of this by 1951, however, it seems to have become well established as an explanation for the form of the rhyme that had become standard in the United Kingdom. Peter and Iona Opie, the leading authorities on nursery rhymes, remarked: The invariable sneezing and falling down in modern English versions have given would- be origin finders the opportunity to say that the rhyme dates back to the Great Plague. Sneezing or coughing was a final fatal symptom, and "all fall down" was exactly what happened. Which Rhyme ?
+
+- Ringa Ringa Roses
