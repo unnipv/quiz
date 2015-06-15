@@ -26,6 +26,8 @@ A large steel door-frame fitted with special X-Ray scanner connected with comput
 
 - The Monalisa !
 
-6.The rhyme has often been associated with the Great Plague which happened in England in 1665, or with earlier outbreaks of the Black Death in England. Interpreters of the rhyme before the Second World War make no mention of this by 1951, however, it seems to have become well established as an explanation for the form of the rhyme that had become standard in the United Kingdom. Peter and Iona Opie, the leading authorities on nursery rhymes, remarked: The invariable sneezing and falling down in modern English versions have given would- be origin finders the opportunity to say that the rhyme dates back to the Great Plague. Sneezing or coughing was a final fatal symptom, and "all fall down" was exactly what happened. Which Rhyme ?
+6.The rhyme has often been associated with the Great Plague which happened in England in 1665, or with earlier outbreaks of the Black Death in England. Interpreteore the Second World War make no mention of this by 1951, however, it seems to have become well established as an explanation rs of the rhyme beffor the form of the rhyme that had become standard in the United Kingdom. Peter and Iona Opie, the leading authorities on nursery rhymes, remarked: The invariable sneezing and falling down in modern English versions have given would- be origin finders the opportunity to say that the rhyme dates back to the Great Plague. Sneezing or coughing was a final fatal symptom, and "all fall down" was exactly what happened. Which Rhyme ?
 
 - Ringa Ringa Roses
+
+7.Which popular movie starring Harry Hart made a certain old English phrase first said by William Horman a headmaster at an english school in Eton, England. Give me both the movie and the phrase.
