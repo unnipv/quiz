@@ -31,3 +31,7 @@ A large steel door-frame fitted with special X-Ray scanner connected with comput
 - Ringa Ringa Roses
 
 7.Which popular movie starring Harry Hart made a certain old English phrase first said by William Horman a headmaster at an english school in Eton, England. Give me both the movie and the phrase.
+
+- Kingsman: The Secret Service
+- "Manners Maketh Man"
+
