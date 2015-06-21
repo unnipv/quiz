@@ -43,3 +43,7 @@ A large steel door-frame fitted with special X-Ray scanner connected with comput
 9.Construction of X occurred in three stages across 199 years. Work on X began on August 14, 1173, during a period of military success and prosperity. X was finally completed in 1372. There has been controversy about the real identity of the architect of the X. For many years, the design was attributed to Guglielmo and Bonanno ______. However, recent studies seem to indicate Diotisalvi as the original architect due to the time of construction. However, Diotisalvi usually signed his work and there is no signature on X, leading to speculation. During World War II, the Allies discovered that the Germans were using the X as an observation post. A U.S. Army sergeant sent to confirm the presence of German troops in the tower was impressed by the beauty of the X and thus refrained from ordering an artillery strike, sparing it from destruction.
 
 - Leaning Tower Of Pisa 
+
+10.X aficionados often claim that the spread of its popularity is due to Pope Clement VIII's influence. Being pressured by his advisers to declare X the "______ invention of Satan" because of its popularity among Muslims and it being a sort of antithesis or substitute for ____ (which was used in the Eucharist), upon tasting it he instead declared that, "This devil's drink is so delicious...we should cheat the devil by baptizing it." The year often cited is 1600.
+
+- Coffee
