@@ -35,3 +35,11 @@ A large steel door-frame fitted with special X-Ray scanner connected with comput
 - Kingsman: The Secret Service
 - "Manners Maketh Man"
 
+8.ID X X graduated from Oregon with a degree in journalism in 1959. He enlisted in the army for a year (and served in the reserves for seven), then enrolled at the Graduate School of Business at Stanford. As a kid and in college, X was involved in many sports like track running, basketball and football. Stanford changed X's life. For the first time, he was excited to read about something other than sports. And it was in Frank Shallenberger's small-business class that X conceived Y. Shallenberger gave the class the following assignment: Invent a New business, describe its purpose and create a marketing plan. The main thrust of X’s business plan was using cheap foreign labour to manufacture the products on a large scale. His inspiration behind so was the collapse of German cameras in the American market with the introduction of the cheaper Japanese Cameras. X later described that class as an 'aha!' moment.
+
+- Phil Knight
+- Nike
+
+9.Construction of X occurred in three stages across 199 years. Work on X began on August 14, 1173, during a period of military success and prosperity. X was finally completed in 1372. There has been controversy about the real identity of the architect of the X. For many years, the design was attributed to Guglielmo and Bonanno ______. However, recent studies seem to indicate Diotisalvi as the original architect due to the time of construction. However, Diotisalvi usually signed his work and there is no signature on X, leading to speculation. During World War II, the Allies discovered that the Germans were using the X as an observation post. A U.S. Army sergeant sent to confirm the presence of German troops in the tower was impressed by the beauty of the X and thus refrained from ordering an artillery strike, sparing it from destruction.
+
+- Leaning Tower Of Pisa 
