@@ -143,3 +143,34 @@ What am I talking about? ( an easy q )
 ![](http://1.bp.blogspot.com/-YaipOxOH3dQ/UAZVn14-XuI/AAAAAAAAALo/Z9zsrStdSuo/s1600/asd.jpg)
 
 - Marissa Mayer , CEO of Yahoo
+
+21.X died of pneumonia in 1910 at a train station, after falling ill when he left home in the middle of winter. His death came only days after gathering the nerve to abandon his family and wealth and take up the path of a wandering ascetic, a path that he had agonized over pursuing for decades. He had not been at the peak of health before leaving home; his wife and daughters were all actively engaged in caring for him daily. He had been speaking and writing of his own death in the days preceding his departure from home, but fell ill at the station not far from home.
+
+The police tried to limit access to his funeral procession, but thousands of peasants lined the streets at his funeral. Still, some peasants were heard to say that, other than knowing that "some nobleman had died," they knew little else about X himself.
+
+Identify X.
+
+- Leo Tolstoy 
+
+22.In a certain film franchise, A has played the character X in all the films of the franchise. In the first film of this franchise, B played the character Y. The character Y doesn't appear in any of the following sequels until he makes an appearance in the last film of the franchise. However, in the last film, Y is instead played by A. (1 plays both X and Y only in the last film)
+
+- Prof. Flitwick
+- Griphook
+
+23.In Japan they are called Oshiya . They are found at subway stations they do something that is very critical to run the Japanese train network on time. What do they do ? ( don't think about complicated stuff )
+
+- They push people in to trains during rush hour and hence allowing the trains to run on time.
+
+24.What English phrase is being referred here ?
+
+![](http://3.bp.blogspot.com/-DE2hdavuF-E/Tum8X2FnxCI/AAAAAAAACC0/emFpO_yUtqA/s1600/123.JPG)
+
+- Comparing apples and oranges.
+
+25.Trivia.
+
+![](http://3.bp.blogspot.com/-_Eu2Z5Eqzz4/Tum5fgkDEgI/AAAAAAAACCc/lSzo84LA3zk/s1600/123.JPG)
+![](http://4.bp.blogspot.com/-9huk8HcrNAE/Tum5gmIRQEI/AAAAAAAACCk/vDueSbevDb0/s1600/234.jpg)
+
+26.
+
