@@ -179,5 +179,24 @@ Put funda.
 - Timon (meerkat) and Pumba (warthog)
 
 27.Again Put Funda.
+
 ![](http://3.bp.blogspot.com/-Ux8XUpHpW0A/TobffEhhkkI/AAAAAAAAB6E/Fp62GMbGWY4/s1600/New+Bitmap+Image.bmp)
 
+- 31 flavours of Baskin Robbins.
+
+28.Put funda.
+
+![](http://1.bp.blogspot.com/-ODKN3bf2--Q/TxRLAg7QTZI/AAAAAAAAAlY/Uuyu6T-0LUc/s1600/abc.png)
+ Fill in the blanks and tell me what it is related to .
+
+29.Put funda.
+
+![](http://2.bp.blogspot.com/-5Rf9mWEMY8c/T-SDfbtOi8I/AAAAAAAAAzA/oQEy0rvjC-s/s1600/idi.png)
+
+- The only organisations which have won the Nobel peace prize.
+
+30.This process occurs through A dedicated conference line in London. Originally this process was done by 5 founding members including N M Rothschild & Sons. This takes every day at 10:30 am and 3 pm local time. This process is done so that a value of a certain commercial quantity so determined that is of immense value . What am I talking about .
+
+- Fixing the price of gold.
+
+31. 
