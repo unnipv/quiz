@@ -61,3 +61,7 @@ There are hundreds of variants and extended analogies of X, in different countri
 and legal systems and popular culture. What?
 
 - John Doe / Richard Roe
+
+12.Referring to what did John Adams complain to his wife Abigail that, "My country has in its wisdom contrived for me the most insignificant office that ever the invention of man contrived or his imagination conceived."?
+
+- On being the US Vice President for 2 Terms
