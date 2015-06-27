@@ -49,4 +49,15 @@ A large steel door-frame fitted with special X-Ray scanner connected with comput
 
 - Coffee
 
-11.
+11.The name X, along with Y were regularly invoked in English legal instruments to satisfy technical requirements governing standing and jurisdiction, beginning perhaps as early as the reign of England's King Edward III (1312–1377).[5]
+
+The Oxford English Dictionary states that X is "the name given to the fictitious lessee of the plaintiff, in the (now obsolete in the UK) mixed action of ejectment, the fictitious defendant being called Y.
+This particular use became obsolete in the UK in 1852:
+As is well known, the device of involving real people as notional lessees and ejectors was used to enable freeholders to sue the real ejectors. These were then replaced by the fictional characters X and Y. Eventually the medieval remedies were (mostly) abolished by the Real Property Limitation Act of 1833; the fictional characters of X and Y by the Common Law Procedure Act 1852; and the forms of action themselves by the Judicature Acts 1873-75."
+
+The term 'X Injunction' (or X Order) is used in the UK to describe an injunction sought against someone whose identity is not known at the time it is issued:
+"8.02 If an unknown person has possession of the confidential personal information and is threatening to disclose it, a X injunction may be sought against that person. The first time this form of injunction was used since 1852 in the United Kingdom was in 2005 when lawyers acting for JK Rowling and her publishers obtained an interim order against an unidentified person who had offered to sell chapters of a stolen copy of an unpublished Harry Potter novel to the media"
+There are hundreds of variants and extended analogies of X, in different countries 
+and legal systems and popular culture. What?
+
+- John Doe / Richard Roe
