@@ -138,4 +138,8 @@ What am I talking about? ( an easy q )
 
 - Flipkart ( John wood's book - leaving microsoft to change the world, formed the Room to Read the NGO & it was the first book to be sold on the Flipkart.com which was formed by former Amazon.com empolyees sanjay & binny bansal. )
 
-20.
+20.Who is this ? ( Don't be fooled by something )
+
+![](http://1.bp.blogspot.com/-YaipOxOH3dQ/UAZVn14-XuI/AAAAAAAAALo/Z9zsrStdSuo/s1600/asd.jpg)
+
+- Marissa Mayer , CEO of Yahoo
