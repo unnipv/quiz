@@ -67,8 +67,10 @@ and legal systems and popular culture. What?
 - On being the US Vice President for 2 Terms
 
 13.Identify, Connect.
+
+
 ![](http://2.bp.blogspot.com/-d3MoS6uinDs/UNk9M5zKgqI/AAAAAAAAARg/TaXyZke2lWk/s1600/52.jpg)
-[sic]There is a history about an India temple in Kashi Vihswanath which contains a large room with three time-worn posts in it surrounded by 64 golden disks. Brahmin priests, acting out the command of an ancient prophecy, have been moving these disks, in accordance with the immutable rules of the Brahma, since that time. According to the legend, when the last move of the puzzle will be completed, the world will end.
+There is a history about an India temple in Kashi Vihswanath which contains a large room with three time-worn posts in it surrounded by 64 golden disks. Brahmin priests, acting out the command of an ancient prophecy, have been moving these disks, in accordance with the immutable rules of the Brahma, since that time. According to the legend, when the last move of the puzzle will be completed, the world will end.
 If the legend were true, and if the priests were able to move disks at a rate of one per second, using the smallest number of moves, it would take them 264−1 seconds or roughly 585 billion years or 18,446,744,073,709,551,615 turns to finish, or about 45 times the life span of the sun.
 There are many variations on this legend. For instance, in some tellings, the temple is a monastery and the priests are monks. The temple or monastery may be said to be in different parts of the world — including X, and may be associated with any religion. In some versions, other elements are introduced.
 
@@ -128,6 +130,8 @@ What am I talking about? ( an easy q )
 - Keep calm and carry on series of posters
 
 19.Connect.
+
+
 ![](http://4.bp.blogspot.com/-jqkefTPVkPc/ULtrPnDxL5I/AAAAAAAAAQs/lfI89EjvQqo/s1600/48.jpg)
 ![](http://3.bp.blogspot.com/-jMuTtaiPfvw/ULtrRVFzOII/AAAAAAAAAQ0/HBLUVXsZY2o/s1600/48.2.jpg)
 ![](http://1.bp.blogspot.com/-FSGTHZ-24o4/ULtrTBcH4GI/AAAAAAAAAQ8/gy-cVYTNnGg/s1600/48.3.jpg)
