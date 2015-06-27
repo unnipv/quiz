@@ -22,8 +22,10 @@ A large steel door-frame fitted with special X-Ray scanner connected with comput
 
 - Fridge Googling
 
-5.Focussing onto a 20 cm × 25 cm (7.9 in × 9.8 in) pewter plate coated with bitumen of Judea, a mixture similar to asphalt, hardening the bitumen mixture by exposing it to about 8 hours of light, while the unexposed portions remained water soluble and then washing them away with a mixture of oil of lavender and white petroleum gave this. What is it called?
+5.Focussing onto a 20 cm × 25 cm (7.9 in × 9.8 in) pewter plate coated with bitumen of Judea, a mixture similar to asphalt, hardening the bitumen mixture by exposing it to about 8 hours of light, while the unexposed portions remained water soluble and then washing them away with a mixture of oil of lavender and white petroleum gave this. Put funda.
 ![](http://3.bp.blogspot.com/-OcGmX4pauSg/UR0ilSoOFHI/AAAAAAAAASA/ZDd_fIVa9dI/s1600/55.jpg)
+
+- The first photograph by Joseph Nicéphore Niépce
 
 6.The rhyme has often been associated with the Great Plague which happened in England in 1665, or with earlier outbreaks of the Black Death in England. Interpreteore the Second World War make no mention of this by 1951, however, it seems to have become well established as an explanation rs of the rhyme beffor the form of the rhyme that had become standard in the United Kingdom. Peter and Iona Opie, the leading authorities on nursery rhymes, remarked: The invariable sneezing and falling down in modern English versions have given would- be origin finders the opportunity to say that the rhyme dates back to the Great Plague. Sneezing or coughing was a final fatal symptom, and "all fall down" was exactly what happened. Which Rhyme ?
 
@@ -46,3 +48,5 @@ A large steel door-frame fitted with special X-Ray scanner connected with comput
 10.X aficionados often claim that the spread of its popularity is due to Pope Clement VIII's influence. Being pressured by his advisers to declare X the "______ invention of Satan" because of its popularity among Muslims and it being a sort of antithesis or substitute for ____ (which was used in the Eucharist), upon tasting it he instead declared that, "This devil's drink is so delicious...we should cheat the devil by baptizing it." The year often cited is 1600.
 
 - Coffee
+
+11.
