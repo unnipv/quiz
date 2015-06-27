@@ -74,3 +74,41 @@ There are many variations on this legend. For instance, in some tellings, the te
 
 - Tower of Hanoi
 
+14. What is blanked out ?
+![](http://3.bp.blogspot.com/-hbWB0OsYkXw/UNWA5eyQvgI/AAAAAAAAARQ/E6yeyT-qOMM/s1600/51.jpg)
+
+- Pringles !
+
+15.Red is a chaser, alternately called Macky, Shadow or Blinky.
+Pink is an ambusher, also known as Micky,Speedy or Pinky.
+Cyan is fickle, nicknamed Mucky, Bashful or Inky.
+Orange is stupid, a trait noticable by his slow movement, and is affectionately referred to as Mocky, Pokey or Clyde.
+
+They aren't really very helpful when you meet them, nor are they useful in any way, except four times for about 10 seconds.
+Collectively they are also called "ghosts","goblins or "octopi".
+
+What am I talking about here ?
+
+- The Pacman ghosts !
+
+16.Lyrics of what ?
+
+A girl who is warm and humanly during the day
+A classy girl who knows how to enjoy the freedom of a cup of coffee
+A girl whose heart gets hotter when night comes
+A girl with that kind of twist
+I’m a guy
+A guy who is as warm as you during the day
+A guy who one-shots his coffee before it even cools down
+A guy whose heart bursts when night comes
+That kind of guy
+Beautiful, loveable
+Yes you, hey, yes you, hey
+Beautiful, loveable
+Yes you, hey, yes you, hey
+Now let’s go until the end
+
+- Gangnam style
+
+17.
+
