@@ -22,9 +22,8 @@ A large steel door-frame fitted with special X-Ray scanner connected with comput
 
 - Fridge Googling
 
-5.It is the practice of looking through the contents of your refrigerator to see what raw ingredients you can easily lay your hands on, and using those words as a basis for a Google search term (which usually also incorporates the word 'recipe' somewhere) in order to get a list of suggestions of what to cook. Though it has only been in use for the last couple of years or so, this expression is thought to have been coined in 2002 by Bostonian blogger Judy Hourihan, a former Massachusetts software engineer.
-
-- The Monalisa !
+5.Focussing onto a 20 cm × 25 cm (7.9 in × 9.8 in) pewter plate coated with bitumen of Judea, a mixture similar to asphalt, hardening the bitumen mixture by exposing it to about 8 hours of light, while the unexposed portions remained water soluble and then washing them away with a mixture of oil of lavender and white petroleum gave this. What is it called?
+![](http://3.bp.blogspot.com/-OcGmX4pauSg/UR0ilSoOFHI/AAAAAAAAASA/ZDd_fIVa9dI/s1600/55.jpg)
 
 6.The rhyme has often been associated with the Great Plague which happened in England in 1665, or with earlier outbreaks of the Black Death in England. Interpreteore the Second World War make no mention of this by 1951, however, it seems to have become well established as an explanation rs of the rhyme beffor the form of the rhyme that had become standard in the United Kingdom. Peter and Iona Opie, the leading authorities on nursery rhymes, remarked: The invariable sneezing and falling down in modern English versions have given would- be origin finders the opportunity to say that the rhyme dates back to the Great Plague. Sneezing or coughing was a final fatal symptom, and "all fall down" was exactly what happened. Which Rhyme ?
 
