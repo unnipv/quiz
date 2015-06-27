@@ -110,5 +110,28 @@ Now let’s go until the end
 
 - Gangnam style
 
-17.
+17.The first name X is an alternate form of the name Pink. Pink is a very rare first name among men, but its form X, not so much. X is apparently a latin variant for pink meaning noble or patrician.
+The last name Y is considered to be the feminine equivalent of another name(say A).
+So the first person is called XY and the second  is referred to as BA. Considering feminine to be gentler than masculine, pink is gentler than or a softer version of B. The same can be said of the two people as a whole. 
+This is just one of the analogies that looks to give support to the theory that XY and BA are the same person, that has found huge support among fans.
+What?
 
+- Patrick Jane
+- Red John
+
+18.First created by the UK Government during the onset of WWII,  it's sole intention was to boost the morale of the nation in light of the invasions. Due to it's limited distribution, it was little known until 2000, when a number of private companies started using it(or variants) for advertising/publicizing their products. It has created numerous other product ranges including parodies. Its message has also been felt relevant to the recent recession and has been adopted as an unofficial motto by many organisations. Since its copyright expired after 50 years, it is can be used by anyone publicly thus increasing its popularity.
+
+It is the last version in a series of three. The first one is titled "Freedon Is In Peril. Defend It With All Your Might." while the second one is called "Your Courage, Your Cheerfulness, Your Resolution Will Bring Us Victory".
+
+What am I talking about? ( an easy q )
+
+- Keep calm and carry on series of posters
+
+19.Connect.
+![](http://4.bp.blogspot.com/-jqkefTPVkPc/ULtrPnDxL5I/AAAAAAAAAQs/lfI89EjvQqo/s1600/48.jpg)
+![](http://3.bp.blogspot.com/-jMuTtaiPfvw/ULtrRVFzOII/AAAAAAAAAQ0/HBLUVXsZY2o/s1600/48.2.jpg)
+![](http://1.bp.blogspot.com/-FSGTHZ-24o4/ULtrTBcH4GI/AAAAAAAAAQ8/gy-cVYTNnGg/s1600/48.3.jpg)
+
+- Flipkart ( John wood's book - leaving microsoft to change the world, formed the Room to Read the NGO & it was the first book to be sold on the Flipkart.com which was formed by former Amazon.com empolyees sanjay & binny bansal. )
+
+20.
