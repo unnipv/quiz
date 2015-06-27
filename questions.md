@@ -65,3 +65,12 @@ and legal systems and popular culture. What?
 12.Referring to what did John Adams complain to his wife Abigail that, "My country has in its wisdom contrived for me the most insignificant office that ever the invention of man contrived or his imagination conceived."?
 
 - On being the US Vice President for 2 Terms
+
+13.Identify, Connect.
+![](http://2.bp.blogspot.com/-d3MoS6uinDs/UNk9M5zKgqI/AAAAAAAAARg/TaXyZke2lWk/s1600/52.jpg)
+[sic]There is a history about an India temple in Kashi Vihswanath which contains a large room with three time-worn posts in it surrounded by 64 golden disks. Brahmin priests, acting out the command of an ancient prophecy, have been moving these disks, in accordance with the immutable rules of the Brahma, since that time. According to the legend, when the last move of the puzzle will be completed, the world will end.
+If the legend were true, and if the priests were able to move disks at a rate of one per second, using the smallest number of moves, it would take them 264−1 seconds or roughly 585 billion years or 18,446,744,073,709,551,615 turns to finish, or about 45 times the life span of the sun.
+There are many variations on this legend. For instance, in some tellings, the temple is a monastery and the priests are monks. The temple or monastery may be said to be in different parts of the world — including X, and may be associated with any religion. In some versions, other elements are introduced.
+
+- Tower of Hanoi
+
