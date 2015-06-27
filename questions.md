@@ -172,5 +172,12 @@ Identify X.
 ![](http://3.bp.blogspot.com/-_Eu2Z5Eqzz4/Tum5fgkDEgI/AAAAAAAACCc/lSzo84LA3zk/s1600/123.JPG)
 ![](http://4.bp.blogspot.com/-9huk8HcrNAE/Tum5gmIRQEI/AAAAAAAACCk/vDueSbevDb0/s1600/234.jpg)
 
-26.
+26.http://1.bp.blogspot.com/-4x9UVhur_oo/ToVmcT_wM2I/AAAAAAAAB5A/9VesRYWlNqo/s1600/baba.jpg
+
+Put funda.
+
+- Timon (meerkat) and Pumba (warthog)
+
+27.Again Put Funda.
+![](http://3.bp.blogspot.com/-Ux8XUpHpW0A/TobffEhhkkI/AAAAAAAAB6E/Fp62GMbGWY4/s1600/New+Bitmap+Image.bmp)
 
