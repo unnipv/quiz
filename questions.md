@@ -206,3 +206,10 @@ This is currently being built.
 
 - James Webb telescope
 
+32.What is it that dogs have 13 , cats have 3 and humans have 4?
+- Blood types
+- 
+33.What is the function of the black lines down the faces and under the eyes of a cheetah?
+![](https://s-media-cache-ak0.pinimg.com/736x/c8/2c/eb/c82ceb9b34eaa7fece7137b4df976a30.jpg)
+
+-They act as anti-glare devices
