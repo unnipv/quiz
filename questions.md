@@ -213,3 +213,7 @@ This is currently being built.
 ![](https://s-media-cache-ak0.pinimg.com/736x/c8/2c/eb/c82ceb9b34eaa7fece7137b4df976a30.jpg)
 
 -They act as anti-glare devices
+34.Lord protector of Commonwealth of England.The only non-royal to be king of England.Id him.
+![](http://image.slidesharecdn.com/mergeddocument-150610064657-lva1-app6891/95/quiz-summer-2015-16-638.jpg?cb=1434907422)
+
+-Oliver Cromwell
